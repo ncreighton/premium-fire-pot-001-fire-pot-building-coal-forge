@@ -1,0 +1,2 @@
+# premium-fire-pot-001-fire-pot-building-coal-forge
+Tired of juggling mismatched plans and forgotten details while crafting your fire pot? Your creative flow deserves a structured forge, not a scattered workshop.  This Notion template transforms the chaos of fire pot building and coal forge heart craft into a seamless, guided workflow. It combines project management with creative prompts, so you can
